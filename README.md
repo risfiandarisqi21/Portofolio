@@ -19,4 +19,4 @@ If you're interested in collaborating or learning more, feel free to reach out:
 📧 Email: [risfiandarisqi88@gmail.com](mailto:risfiandarisqi88@gmail.com)  
 🔗 LinkedIn: [linkedin.com/in/muhammad-risqi-risfianda](https://linkedin.com/in/muhammad-risqi-risfianda)  
 
-Thank you for visiting my portfolio! 
+Thank you for visiting my portfolio! hehe
